@@ -17,3 +17,4 @@ Here are some ideas to get you started:
 tell me about ...
 thank you
 good to see you
+have a nice day
