@@ -15,6 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 tell me about ...
-thank you
 good to see you
 have a nice day
