@@ -19,4 +19,3 @@ good to see you
 have a nice day
 light is gone
 abdol hossein
-go home
