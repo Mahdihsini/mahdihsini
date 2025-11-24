@@ -25,6 +25,3 @@ nice
 have a nice day
 hi
 gol bah bah
-Just completed my daily #gUmi quest on @UmiNetwork. Let’s go! 💪
-g∩eura
-g∩eura
